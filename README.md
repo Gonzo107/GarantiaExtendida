@@ -1,1 +1,1 @@
-PruebaCeiba
+Garantia extendida
